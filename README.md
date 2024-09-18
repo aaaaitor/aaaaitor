@@ -1,4 +1,4 @@
-HI! Doing Game Development and Unreal Engine things... yes... that's all. :)
+HI! Doing Game Development and Unreal Engine things... that's all. :)
 <br/>
 
 I usually use these on my everyday things ↓
